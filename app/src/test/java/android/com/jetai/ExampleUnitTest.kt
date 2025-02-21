@@ -1,4 +1,4 @@
-package hoods.com.jetai
+package android.com.jetai
 
 import org.junit.Test
 
