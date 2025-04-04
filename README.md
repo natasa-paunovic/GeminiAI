@@ -1,0 +1,5 @@
+![Screenshot_20250404_180925_Gemini AI](https://github.com/user-attachments/assets/e517efff-1540-4795-b328-748a16474c19)
+![Screenshot_20250404_180948_Gemini AI](https://github.com/user-attachments/assets/3ed9f257-22b0-41d3-824c-701a81585e24)
+![Screenshot_20250404_181027_Gemini AI](https://github.com/user-attachments/assets/ef32750e-d661-4437-b80c-69bf579805fd)
+![Screenshot_20250404_181016_Gemini AI](https://github.com/user-attachments/assets/10375675-1fda-4796-9d97-89dfba8210b9)
+![Screenshot_20250404_180931_Gemini AI](https://github.com/user-attachments/assets/65baf4e5-f576-466e-b610-89e73a36a22e)
